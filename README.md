@@ -17,3 +17,7 @@
 [微信支付](https://www.imagehub.cc/image/A7584EE9-CA5E-48DA-B271-BFB3480B1C92.Hr0q)
 
 ###### 备注:作者开发精力实在有限 暂时只能用迅雷云盘分享 后期会更新其他分享方式
+
+###### 联系我们
+
+[官方鹅群](https://qm.qq.com/cgi-bin/qm/qr?k=5dYCu9S3d4I3NMbjenZhWJRrYnmq4CJv&authKey=apQ+kRbxmlnNF/qJmr/krX76eQsb2IQJ2BzqBuBhJxlN1CjZOlbNBal+bYunT1zc&noverify=0)
