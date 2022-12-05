@@ -39,7 +39,7 @@
 
 [点击这里领红包](https://www.imagehub.cc/image/IMG-0238.PNG.Jefr)
 
-[支付宝](https://www.imagehub.cc/image/532DCF15-E931-4629-85BA-3DD0AF9BCE45.HdqB)
+![支付宝](https://www.imagehub.cc/image/HdqB)
 
 [微信支付](https://www.imagehub.cc/image/A7584EE9-CA5E-48DA-B271-BFB3480B1C92.Hr0q)
 
