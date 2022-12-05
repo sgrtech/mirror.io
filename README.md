@@ -24,3 +24,5 @@
 ###### 联系我们
 
 [官方鹅群](https://qm.qq.com/cgi-bin/qm/qr?k=5dYCu9S3d4I3NMbjenZhWJRrYnmq4CJv&authKey=apQ+kRbxmlnNF/qJmr/krX76eQsb2IQJ2BzqBuBhJxlN1CjZOlbNBal+bYunT1zc&noverify=0)
+
+[吹水群](https://qm.qq.com/cgi-bin/qm/qr?k=LIESPOE7_hDF-d7rEomJPQ26jcHrUPPc&authKey=WLIAxt2JoEdjUdymTpyqvypyTxq+/PZQJlLzzwT9/1oS1pVPaie3xkBjw+HDKYxB&noverify=0)
