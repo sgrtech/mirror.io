@@ -4,6 +4,7 @@
 [SGR主页](https://github.com/sgrtech/homepage.io)
 
 ### Windows镜像
+若资源失效请联系作者
 
 [Windows 11 ver.22H2](https://pan.xunlei.com/s/VNIUzvTGtzLLdijBgRs1YFxdA1?pwd=typi#)
 
