@@ -22,6 +22,10 @@
 
 [Windows Server 2016](https://pan.xunlei.com/s/VNIVU8GxWWXX6Gv53E6Eem9GA1?pwd=iynw#)
 
+### Linux镜像
+
+[Ubuntu 22.04.1 amd64](https://pan.xunlei.com/s/VNIW2MvD1b2eegd7wverXCGMA1?pwd=6qvi#)
+
 ******
 
 ##### 捐助我们 开发不易 真诚感谢每一个捐助的人
