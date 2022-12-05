@@ -11,6 +11,8 @@
 
 [Windows 7 SP1](https://pan.xunlei.com/s/VNIVBWR3KCz8nvmK-dDQidydA1?pwd=v2ht#)
 
+[Windows XP SP3](https://pan.xunlei.com/s/VNIVS-vLK461NAyVsB8MPh6OA1?pwd=3tc8#)
+
 ##### 捐助我们 开发不易 真诚感谢每一个捐助的人
 
 [点击这里领红包](https://www.imagehub.cc/image/IMG-0238.PNG.Jefr)
