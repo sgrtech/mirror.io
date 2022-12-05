@@ -5,8 +5,8 @@
 
 ## 目录
 
--Windows镜像
--Linux镜像
+- Windows镜像
+- Linux镜像
 
 ### Windows镜像
 若资源失效请联系作者
