@@ -11,6 +11,8 @@
 
 [Windows 7 SP1](https://pan.xunlei.com/s/VNIVBWR3KCz8nvmK-dDQidydA1?pwd=v2ht#)
 
+[Windows Vista](https://pan.xunlei.com/s/VNIVSmWevz8CairJ1Wqa7MiMA1?pwd=eixm#)
+
 [Windows XP SP3](https://pan.xunlei.com/s/VNIVS-vLK461NAyVsB8MPh6OA1?pwd=3tc8#)
 
 ##### 捐助我们 开发不易 真诚感谢每一个捐助的人
