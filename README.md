@@ -6,6 +6,8 @@
 
 [Windows 10](https://pan.xunlei.com/s/VNIVAc-PBgMu8nFsvb-Qu5PEA1?pwd=v5z5#)
 
+[Windows 7 SP1](https://pan.xunlei.com/s/VNIVBWR3KCz8nvmK-dDQidydA1?pwd=v2ht#)
+
 ##### 捐助我们 开发不易 真诚感谢每一个捐助的人
 
 [支付宝](https://www.imagehub.cc/image/532DCF15-E931-4629-85BA-3DD0AF9BCE45.HdqB)
