@@ -6,7 +6,7 @@
 ### Windows镜像
 若资源失效请联系作者
 
-[Windows 11 ver.22H2](https://pan.xunlei.com/s/VNIUzvTGtzLLdijBgRs1YFxdA1?pwd=typi#)
+[Windows 11 Ver.22H2](https://pan.xunlei.com/s/VNIUzvTGtzLLdijBgRs1YFxdA1?pwd=typi#)
 
 [Windows 10](https://pan.xunlei.com/s/VNIVAc-PBgMu8nFsvb-Qu5PEA1?pwd=v5z5#)
 
