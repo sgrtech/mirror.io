@@ -24,7 +24,9 @@
 
 ### Linux镜像
 
-[Ubuntu 22.04.1 amd64](https://pan.xunlei.com/s/VNIW2MvD1b2eegd7wverXCGMA1?pwd=6qvi#)
+[Ubuntu-22.04.1-amd64](https://pan.xunlei.com/s/VNIW2MvD1b2eegd7wverXCGMA1?pwd=6qvi#)
+
+[Kali-Linux-2022.3-live-amd64](https://pan.xunlei.com/s/VNIW3AwPSB1g_vDgFDHOOzymA1?pwd=gmnk#)
 
 ******
 
