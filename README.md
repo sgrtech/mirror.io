@@ -1,5 +1,8 @@
 # SGR镜像站
 ## 这个项目是用于存放系统镜像的资料库 公开给各位开发者使用 目前仍在建设中 后期会更好的维护
+
+[SGR主页](https://github.com/sgrtech/homepage.io)
+
 ### Windows镜像
 
 [Windows 11 ver.22H2](https://pan.xunlei.com/s/VNIUzvTGtzLLdijBgRs1YFxdA1?pwd=typi#)
