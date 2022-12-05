@@ -46,4 +46,4 @@
 
 [吹水群](https://qm.qq.com/cgi-bin/qm/qr?k=LIESPOE7_hDF-d7rEomJPQ26jcHrUPPc&authKey=WLIAxt2JoEdjUdymTpyqvypyTxq+/PZQJlLzzwT9/1oS1pVPaie3xkBjw+HDKYxB&noverify=0)
 
-theme: Architect
+theme: minima
